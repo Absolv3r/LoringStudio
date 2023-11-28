@@ -1,1 +1,1 @@
-# Loring.github.io
+Loring
